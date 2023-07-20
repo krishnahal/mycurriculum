@@ -1,0 +1,2 @@
+# mycurriculum
+my marketing cv
